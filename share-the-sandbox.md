@@ -1,0 +1,9 @@
+| **Big Idea** | **What It Means Like You're 5** | **Updated Idea** | **Updated Meaning Like You're 5** |
+|--------------|---------------------------------|------------------|-----------------------------------|
+| AI Learning from Art | Some artists don't want the magic drawing app to learn from their pictures because they made them special. | Opting Out is Okay | It's okay if some artists don't want to share their special pictures with the magic drawing app. But it's also okay if others do and want to see what new pictures can come from it. |
+| Protecting Big Companies | Big companies say they need to protect their pictures so they can make money, but really, they are already super rich. | Share the Playground | Instead of letting only the big kids (companies) decide who gets to play with what toys, everyone should get a turn to play and share. |
+| Dreaming of Big Money | People think if they protect their pictures like the big companies, they might get super rich too. | Reality Check | Most of us won't become super rich like in fairy tales, but we can still share and enjoy making cool stuff together. |
+| Complicated Deals | Right now, only a few people decide who gets to make money from pictures and it's all very secret. | Make Things Fair and Open | Let's make sure everyone can see and understand how to share and make money from their creations, kind of like showing everyone the rules of a game. |
+| Cutting Out the Middle Man | There are too many people taking pieces of what artists earn without really helping. | Helping the Creators | Let's make sure the people who make cool stuff get the most help and the most thank you notes or stickers, without others taking them away. |
+
+This updated table includes the fresh perspectives shared, focusing on transparency, fairness, and supporting creators directly without unnecessary intermediaries.
